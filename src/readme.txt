@@ -1,0 +1,10 @@
+README
+
+
+@@@@@ POLSKI @@@@@
+
+
+@@@@@ ENGLISH @@@@@
+
+
+@@@@@ DEUTSCH @@@@@
